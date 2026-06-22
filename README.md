@@ -6,3 +6,7 @@
 
   ![](https://komarev.com/ghpvc/?username=Ne0mixx&style=for-the-badge&color=brightgreen)
 </div>
+
+<div align="center">
+  <h3>BLMatsu <b>HARD NO🚫🚫🚫</b> fuck off please </h3>
+</div>
